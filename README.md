@@ -3,7 +3,7 @@
 Estimados estudiantes,
 
 Con mucha sorpresa y frustración recibí el día lunes un correo de Nakary García indicándome que las preguntas para el primer informe no estaban disponibles en el blog. En efecto, comprobé que quedaron como borrador y nunca fueron publicadas. 
-Su correo también lo interpreto como un indicador de que en todo este tiempo, nadie más intentó encontrarlas. Por esa razón decidí reprogramar esta primera evaluación para la segunda semana de enero, y reformular la asignación como un trabajo que incluirá las lecturas que haremos a partir del lunes.
+Su correo también lo interpreto como un indicador de que en todo este tiempo, nadie más intentó encontrarlas. Por esa razón decidí reprogramar esta primera evaluación para la segunda semana de enero, y reformular la asignación como un trabajo que incluirá las lecturas que haremos a partir del lunes 5/12.
 Adicionalmente se asignará una exposición por estudiante, también para las primeras semanas de enero, y cerraremos el curso con un informe de lectura al final del semestre.
 Aquí les dejo detalles sobre las próximas lecturas, cuyo cronograma actualizado pueden encontrar en el archivo "calendario.jpg".
 Les reitero mis disculpas por el día de retraso en mi regreso, y por cualquier confusión o desamparo académico que puedan haber experimentado.
