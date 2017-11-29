@@ -12,7 +12,7 @@ Espero en el futuro puedan comunicarse con mayor frecuencia conmigo por los veh�
 ## Programa de lecturas para diciembre
 
 * Blanco-Fombona, Rufino. Hombres y libros. Caracas: Biblioteca Ayacucho, 2004.
-- "Darío"
+  * "Darío"
 - "La América de origen inglés contra la América de origen español"
 - "Un libro español sobre letras extranjeras"
 * Acosta, Cecilio. Cosas sabidas y por saberse. Web. http://webdelprofesor.ula.ve/humanidades/alconber/enlaces/ensayos/cecilio_acosta_ensayo/cosas_sabidas.pdf
