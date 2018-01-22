@@ -1,13 +1,8 @@
 # Literatura venezolana 2
 
-Estimados estudiantes,
+## Sobre la tercera evaluación
 
-Con mucha sorpresa y frustración recibí el día lunes un correo de Nakary García indicándome que las preguntas para el primer informe no estaban disponibles en el blog. En efecto, comprobé que quedaron como borrador y nunca fueron publicadas. 
-Su correo también lo interpreto como un indicador de que en todo este tiempo, nadie más intentó encontrarlas. Por esa razón decidí reprogramar esta primera evaluación para la segunda semana de enero, y reformular la asignación como un trabajo que incluirá las lecturas que haremos a partir del lunes 5/12.
-Adicionalmente se asignará una exposición por estudiante, también para las primeras semanas de enero, y cerraremos el curso con un informe de lectura al final del semestre.
-Aquí les dejo detalles sobre las próximas lecturas, cuyo cronograma actualizado pueden encontrar en el archivo "calendario.jpg".
-Les reitero mis disculpas por el día de retraso en mi regreso, y por cualquier confusión o desamparo académico que puedan haber experimentado.
-Espero en el futuro puedan comunicarse con mayor frecuencia conmigo por los vehículos ofrecidos.
+En la tercera evaluación, trabajaremos con preguntas abiertas, a partir de lo discutido en clase sobre la relación entre algunos proyectos de la modernidad poética, y los aspectos sombríos del héroe americano. Esto fundado en la lectura de los textos de José Antonio Ramos Sucre, manifiestos de grupos del siglo XX, y textos de referencia de Simón Bolívar, que han sido asignados.
 
 ## Programa de lecturas para diciembre
 
